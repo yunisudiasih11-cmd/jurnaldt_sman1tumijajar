@@ -1,0 +1,1 @@
+# jurnaldt_sman1tumijajar
